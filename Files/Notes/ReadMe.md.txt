@@ -1,0 +1,1 @@
+https://pcsupport.lenovo.com/us/en/products/desktops-and-all-in-ones/thinkcentre-m-series-desktops/thinkcentre-m73/downloads/driver-list/component?name=Motherboard%20Devices%20%28Backplanes,%20core%20chipset,%20onboard%20video,%20PCIe%20switches%29&id=FB762CAD-DE8B-49C2-A04B-809B4958F608
